@@ -1,4 +1,4 @@
-
+Download Free automatic Scripts for king legacy for king legacy and experience the ultimate in gameplay enhancement with no cooldown and invisibility. Designed for gamers who
 
 
 
